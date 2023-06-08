@@ -1,2 +1,1 @@
-# meestoycansando
-dios
+no quiero jugar mas
